@@ -3,7 +3,7 @@
 # This is my Top 3 series of all time.
 Number 3 is **Tokyo Ghoul**.
 
-https://cdn.noitatnemucod.net/thumbnail/300x400/100/a6ffd8294e7a5d540d7c462e94400189.jpg
+![XiEjpxE](https://github.com/user-attachments/assets/3a8d62d5-3f18-4196-9b59-305590146e08)
 
 A college student who gets attacked by a ghoul and has to conceal his identity in Tokyo becomes a half-ghoul in the manga series and adaptation Tokyo Ghoul.
 
